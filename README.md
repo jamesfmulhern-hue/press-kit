@@ -3,7 +3,7 @@
 **Novelist · poet · short story writer**
 
 > ⭐ **KIRKUS REVIEWS BEST BOOK OF 2019** · for *Give Them Unquiet Dreams*
-> Kirkus Starred Review · Readers' Favorite · Notable Best Book of 2019 · Wishing Shelf Red Ribbon (UK)
+> Kirkus Starred Review · Readers' Favorite · Notable Best Indie Book of 2019 · Wishing Shelf Red Ribbon (UK)
 
 [📄 **Download the full press kit (PDF)**](James_Mulhern_Press_Kit.pdf) · [🌐 Web version](https://jamesfmulhern-hue.github.io/press-kit/)
 
@@ -45,7 +45,7 @@ He lives in Philadelphia, where he writes, teaches, and edits manuscripts.
 **Novel · 2019 · Silver Current Press · 258 pages · ISBN 978-1-0822-4062-1**
 
 > ⭐ **KIRKUS REVIEWS BEST BOOK OF 2019**
-> Kirkus Starred Review · Readers' Favorite · Notable Best Book of 2019 · Wishing Shelf Red Ribbon (UK)
+> Kirkus Starred Review · Readers' Favorite · Notable Best Indie Book of 2019 · Wishing Shelf Red Ribbon (UK)
 
 ### Synopsis
 
